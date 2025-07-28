@@ -3,7 +3,7 @@
 > 🧠 _Learning every day. Building every night. Helping businesses and users fix what's broken. Let's grow together!_
 
 ![Profile views](https://komarev.com/ghpvc/?username=jaysomwanshi&style=flat-square)
-![YouTube Channel Subscribers](https://img.shields.io/youtube/channel/subscribers/creativejayindia?style=social)
+![YouTube Channel Subscribers](https://img.shields.io/youtube/channel/subscribers/UCnoVvYa7zv-KOIj944fhWAw?style=social)
 ![Fiverr](https://img.shields.io/badge/Fiverr-Check%20My%20Gigs-brightgreen?logo=fiverr)
 
 📍 India · 💻 Freelance @ Mahalaxmi Tech Services  
