@@ -132,7 +132,7 @@ If you're hiring, need help, or want to collaborate on projects:
 
 📧 Email: [jaysomwanshi1@gmail.com](mailto:jaysomwanshi1@gmail.com)  
 🌐 Website: [mahalaxmitechservices.in](http://www.mahalaxmitechservices.in)  
-📲 Fiverr: [fiverr.com/sellers/jaysomwanshi](https://www.fiverr.com/sellers/jaysomwanshi)  
+📲 Fiverr: [fiverr.com/jaysomwanshi](https://www.fiverr.com/jaysomwanshi)  
 🎥 YouTube: [@creativejayindia](https://www.youtube.com/@creativejayindia)
 
 ---
