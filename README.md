@@ -8,7 +8,7 @@
 📫 Email: [jaysomwanshi1@gmail.com](mailto:jaysomwanshi1@gmail.com) 
 🔗 [LinkedIn](https://www.linkedin.com/in/pawan-somwanshi) |
 🎥 [YouTube](https://www.youtube.com/@creativejayindia) |
-💼 [Fiverr](https://www.fiverr.com/sellers/jaysomwanshi) |
+💼 [Fiverr](https://www.fiverr.com/jaysomwanshi) |
 🧠 [GitHub](https://github.com/jaysomwanshi)
 
 ## 🧑‍💻 About Me
